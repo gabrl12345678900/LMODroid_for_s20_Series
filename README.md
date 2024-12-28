@@ -1,0 +1,1 @@
+# LMODroid_for_s20_Series
